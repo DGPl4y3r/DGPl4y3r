@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DGPl4y3r
+- 👋 Hi, I’m @KIRYM
 - 👀 I’m interested in Cyber Security
 - 🌱 I’m currently learning ho to start on cyber security
 - 💞️ I’m looking to collaborate on whatever look interesting for me
